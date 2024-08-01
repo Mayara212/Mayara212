@@ -5,4 +5,4 @@
 - ✨Amo 🥰Romance🥰 tanto em filme como livro Adoro a sensação que me trás.
 - ✨Minhas cores favoritas são: 💓💛💜💟
   - ✨Não sou muito fã de esportes,mas gosto de dois que para mim são legais:
-  - ✨Patinação; Voléi 🏐⛸
+  - ✨Patinação; Voléi;e Andar de Bicicleta🏐⛸
