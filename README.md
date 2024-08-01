@@ -1,8 +1,8 @@
--  Olá eu sou a Mayara 💜💜;
-- Usarei esse site para desenvolvimento de meus projetos na plataforma Alura;💚
-- Gosto muito de Ler,📖📕 Assistir filmes🎞,Gosto de Escrever acontecimentos,momentos 🖋
-- Sou uma pessoa extrovertida😁 Amorosa💞
-- Amo 🥰Romance🥰 tanto em filme como livro Adoro a sensação que me trás.
-- Minhas cores favoritas são: 💓💛💜💟
-  - Não sou muito fã de esportes,mas gosto de dois que para mim são legais:
-  - Patinação; Voléi 
+-  ✨Olá eu sou a Mayara 💜💜;
+- ✨Usarei esse site para desenvolvimento de meus projetos na plataforma Alura;💚
+- ✨Gosto muito de Ler,📖📕 Assistir filmes🎞,Gosto de Escrever acontecimentos,momentos 🖋
+- ✨Sou uma pessoa extrovertida😁 Amorosa💞
+- ✨Amo 🥰Romance🥰 tanto em filme como livro Adoro a sensação que me trás.
+- ✨Minhas cores favoritas são: 💓💛💜💟
+  - ✨Não sou muito fã de esportes,mas gosto de dois que para mim são legais:
+  - ✨Patinação; Voléi 🏐⛸
